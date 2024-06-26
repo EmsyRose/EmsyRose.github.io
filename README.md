@@ -5,5 +5,5 @@ Have you ever considered the fact that I might be clinically insane?
 
 [Do not click here.](https://emsyrose.github.io/kat.html)
 
-[I told you not to click.]()
+[I told you not to click.](https://emsyrose.github.io/text.html)
 
