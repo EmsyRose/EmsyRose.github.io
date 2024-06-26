@@ -4,4 +4,4 @@ Have you ever considered the fact that I might be clinically insane?
 [Click Here.](https://emsyrose.github.io/File.html)
 
 [Do not click here.](https://static1.cbrimages.com/wordpress/wp-content/uploads/2020/04/shoto-battles-featured-image.jpg)
-Excuse me. Get out. 
+
