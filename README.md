@@ -7,3 +7,5 @@ Have you ever considered the fact that I might be clinically insane?
 
 [I told you not to click.](https://emsyrose.github.io/text.html)
 
+[...](https://emsyrose.github.io/izu.html)
+
