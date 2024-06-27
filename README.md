@@ -9,5 +9,7 @@ Have you ever considered the fact that I might be clinically insane?
 
 [...](https://emsyrose.github.io/izu.html)
 
+![Yippe!](https://i.kym-cdn.com/photos/images/newsfeed/002/730/263/b69.gif)
+
 
 
