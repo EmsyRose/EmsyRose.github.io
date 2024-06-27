@@ -11,5 +11,7 @@ Have you ever considered the fact that I might be clinically insane?
 
 ![Yippe!](https://i.kym-cdn.com/photos/images/newsfeed/002/730/263/b69.gif)
 
+[More dancing toothless!](https://i.kym-cdn.com/photos/images/newsfeed/002/730/263/b69.gif)
+
 
 
