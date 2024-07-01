@@ -16,6 +16,7 @@ Have you ever considered the fact that I might be clinically insane?
 [Water.](https://emsyrose.github.io/bro.html)
 
 ![Stuff.](https://www.icegif.com/wp-content/uploads/2022/03/icegif-788.gif)
+![Idk](https://emsyrose.github.io/yep.html)
 
 
 
