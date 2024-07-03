@@ -17,7 +17,7 @@ Have you ever considered the fact that I might be clinically insane?
 
 ![Stuff.](https://www.icegif.com/wp-content/uploads/2022/03/icegif-788.gif)
 
-[Poof, magic!](https://emsyrose.github.io/gandalf2.png.html)
+[Poof, magic!](https://emsyrose.github.io/sure.html)
 
 
 
